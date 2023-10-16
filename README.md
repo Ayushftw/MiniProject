@@ -1,1 +1,11 @@
-# MiniProject
+Group:-Pranav20csu152,Ayush20csu154,Rishab20csu324![MiniProject1](https://github.com/Ayushftw/MiniProject/assets/97087155/19bc6d25-3d4e-4a17-a429-979367f71444)
+![MP](https://github.com/Ayushftw/MiniProject/assets/97087155/29e7b52d-ebbf-4fe8-a018-6e3a1a28a00c)
+![MP2](https://github.com/Ayushftw/MiniProject/assets/97087155/19b0352d-f8e7-4e92-8b4a-586bb63a6369)
+![MP3](https://github.com/Ayushftw/MiniProject/assets/97087155/0f1e6f9c-1d2e-4e09-aa8c-ee47f76b67fc)
+![MP4](https://github.com/Ayushftw/MiniProject/assets/97087155/3275b333-766a-4a3c-8191-f90b5a77a9e4)
+![MP5](https://github.com/Ayushftw/MiniProject/assets/97087155/1e62504c-fa59-4125-bb4d-16e1aa010981)
+![MP6](https://github.com/Ayushftw/MiniProject/assets/97087155/033f75a4-8c36-4e9f-8f4e-f06bab14121e)
+![MP7](https://github.com/Ayushftw/MiniProject/assets/97087155/fa2b1872-fde6-4044-85ed-b64bcfb12504)
+![MP8](https://github.com/Ayushftw/MiniProject/assets/97087155/805e019f-db7a-4d34-b300-f88dc06c8704)
+![MP9](https://github.com/Ayushftw/MiniProject/assets/97087155/26e61020-551a-4ee5-bb95-3168fc897c5d)
+![MP10](https://github.com/Ayushftw/MiniProject/assets/97087155/880643c3-e2c9-4c00-8035-2a331a2e59bd)
